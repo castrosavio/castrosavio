@@ -1,0 +1,7 @@
+- 👋 Lucas Castro Savio. 
+- 👀 Ser um bom advogado.
+- 🌱 Pensamento Computacional.
+- 💞️ Para o crescimento da empresa.
+- 📫 savio.lucas@escola.pr.gov.br.
+- 😄 Eu gosto de morar na fazenda, gosto de ouvir musica de sertanejo antigo, gosto de observar a natureza.
+- ⚡ Gosto de saber de novidades, quero saber oque está acontecendo.
